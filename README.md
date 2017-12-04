@@ -1,1 +1,1 @@
-自我娱乐
+my entertainment
